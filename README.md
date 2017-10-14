@@ -12,6 +12,6 @@ https://github.com/iammert/ScalingLayout
 --------
 ![image](https://i.imgur.com/AfMAVm1.jpg)                                      
 
-![image](https://i.imgur.com/8d3Zwf4.jpg)                                      
+![image](https://i.imgur.com/uudRFeN.jpg)                                      
 
 
